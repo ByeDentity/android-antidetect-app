@@ -28,4 +28,4 @@ By clicking [[HERE]](https://t.me/ByeDentitySupport)
 2. Questions regarding the app
 3. Troubleshooting, etc
 
-– Contact our support by clicking [[HERE]](https://t.me/ByeDentitySupport)
+–Contact our support by clicking [[HERE]](https://t.me/ByeDentitySupport)
